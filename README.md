@@ -1,4 +1,5 @@
-##Hoho people!!
+# Hey, what's up?
+I know you saw this. SO CLICK IT
 
 - 👋 Hi, I’m @knikhil25
 - 👀 I’m interested in painting.
